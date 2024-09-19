@@ -6,7 +6,7 @@ Sou aluna do componente curricular de pensamento computacional pela rede estadua
 
 Utilizo em aula a plataforma 
 
-[alura](https:www.alura.com.br)
+[alura](https://www.alura.com.br)
 
 ### Vocẽ pode entrar em contato comigo 
 
