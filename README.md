@@ -8,7 +8,7 @@ Utilizo em aula a plataforma
 
 [alura](https:www.alura.com.br)
 
-###Vocẽ pode entrar em contato comigo 
+### Vocẽ pode entrar em contato comigo 
 
 rutena.brenda@escola.pr.gov.br
 
